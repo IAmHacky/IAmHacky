@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @IAmHacky
+- 👀 I’m interested in games ig
+- 🌱 I’m currently learning nothing my life is trash
+- 💞️ I’m looking to collaborate on fnf mods ig
+- 📫 How to reach me discord Hacky#2657
